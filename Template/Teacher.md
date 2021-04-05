@@ -10,4 +10,6 @@ I had lived in NY a year in 2019 -2020, and I can tell you I and everyone I know
 
 Please Forgive my sparse profile. :-( I've not used Roommate sites before. Was planning to go it alone. I have an out of state number, and feel embarrassed about that, because i HAD a D.C. one! and then my SIM card expired.  I live in Knoxville out in the woods at a friend's 10,000 sq ft mansion. it's hard to explain.
 
-I Also build electric bikes.. 
+I Also build electric bikes..
+
+—https://www.roomies.com/profiles/999281
